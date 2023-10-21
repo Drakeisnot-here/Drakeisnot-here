@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Drakeisnot-here
-- 👀 I’m interested in video games, drawing, comics, and stuff like thatn
+- 👀 I’m interested in video games, drawing, comics, and stuff like that.
 - 🌱 I’m currently learning something.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me.
